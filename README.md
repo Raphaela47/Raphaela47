@@ -9,4 +9,4 @@ meu nome é Rphaela vieira
 
 - 00001093184796sp@al.educacao.sp.gov.br
 -
-- !![](![Uploading gojo-gojo-saotoru.gif…])
+- ![](https://media1.tenor.com/m/ofKKbAiVczQAAAAC/gojo-gojo-saotoru.gif)
